@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/zoro-baron-omatsuri-huh-gif-17694180996190648123"  />
+<img align="right" height="150" src="[[https://tenor.com/view/zoro-baron-omatsuri-huh-gif-17694180996190648123](https://giphy.com/explore/zoro-roronoa)](https://i.gifer.com/7AR.gif)"  />
 
 ###
 
